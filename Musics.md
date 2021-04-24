@@ -1,8 +1,8 @@
 # [Youtube Musics Bookmarks](https://www.youtube.com/playlist?list=PLd-FVSzNJvdVFT0nQqa-m89GKV5BsM15x)
 
-Fabiano Dias Ferreira
+## Brazilian
 
-## Brazilian Pop
+[Silvio Britto - Tá Todo Mundo Loco](https://www.youtube.com/watch?v=Ov_T4cTiYWA)
 
 [Asa Morena - Zizi Possi](https://www.youtube.com/watch?v=EWe7tA7LusE)
 
@@ -15,6 +15,15 @@ Fabiano Dias Ferreira
 [Porto Solidão - Jessé](https://www.youtube.com/watch?v=5kXgwvIrsvU)
 
 [Pra Não Dizer Que Não Falei Das Flores - Geraldo Vandré](https://www.youtube.com/watch?v=KdvsXn8oVPY)
+
+[Made in Brazil - Não Transo Mais](https://www.youtube.com/watch?v=baBhYiP3i_E)
+
+[Made in Brazil - Os Bons Tempos Voltaram](https://www.youtube.com/watch?v=c0CinE0-IHk)
+
+[Fabio Jr - Quando Gira o Mundo](https://www.youtube.com/watch?v=MjdGpOiOfz0)
+
+[Bonde do Forró - Garota de Programa](https://www.youtube.com/watch?v=nEIUY-iGQUk)
+[Hermes e Renato - Unidos do Caralho a Quatro](https://www.youtube.com/watch?v=1LZt9_ROK9s)
 
 ### Só Você - Versions
 
@@ -104,6 +113,7 @@ ____
 
 [Black Sabbath - Aposto que Você Não Sabe](https://www.youtube.com/watch?v=EhKcw3go9dM)
 
+[15 Bandas Nacionais que Você Tem que Conhecer](https://www.youtube.com/watch?v=4u9hKjvwimE)
 ____
 
 ## Covers
@@ -141,6 +151,32 @@ ____
 [Yes - Owner Of A Lonely Heart 1983](https://www.youtube.com/watch?v=vpIduDaggVA)
 
 [Yes - Tempus Fugit (Official Video)](https://www.youtube.com/watch?v=vzxZzIiO84Y)
+
+[Yes - Roundabout with Geddy Lee - Rock Hall of Fame Induction 2017](https://www.youtube.com/watch?v=Mjm10iXTon4)
+
+[Dionne Warwick - That's What Friends Are For](https://www.youtube.com/watch?v=HyTpu6BmE88)
+
+[Dionne Warwick, Stevie Wonder, Elton John, Gladys Knight - That's what friends are for](https://www.youtube.com/watch?v=66Qkf2Jm6pc)
+
+[Dionne Warwick, Stevie Wonder, Whitney Houston, Luther Vandross - That's What Friends Are For](https://www.youtube.com/watch?v=6A2WQksCSWI)
+
+[Pink Floyd - Money (Official Video)](https://www.youtube.com/watch?v=-0kcet4aPpQ)
+
+[Seal - Crazy (Official Video)](https://www.youtube.com/watch?v=4Fc67yQsPqQ)
+
+[Seal - Kiss from a Rose](https://www.youtube.com/watch?v=vx-Lzo9NxAQ)
+
+[Michael Jackson - Thriller (Official Video)](https://www.youtube.com/watch?v=sOnqjkJTMaA)
+
+[Freya - The Sword](https://www.youtube.com/watch?v=WuUCMLl5zQ0)
+
+[Johnny Rivers - Secret Agent Man - 1966](https://www.youtube.com/watch?v=6iaR3WO71j4)
+
+[Elvis Presley - Jailhouse Rock (Music Video)](https://www.youtube.com/watch?v=gj0Rz-uP4Mk)
+
+[The Dead South - In Hell I'll Be In Good Company [Official Music Video]](https://www.youtube.com/watch?v=B9FzVhw8_bY)
+
+[Sonic Youth - Dirty Boots (Official Video)](https://www.youtube.com/watch?v=7XdYnh729IQ)
 
 ### Tainted Love - Versions
 
@@ -216,6 +252,8 @@ ____
 
 [Bee Gees - You Should be Dancing)](https://www.youtube.com/watch?v=LUID0jSh2Ic)
 
+[Bee Gees - You Should be Dancing (Video Clip)](https://www.youtube.com/watch?v=xI68A-rntIk)
+
 [Night Fever - Bee Gees](https://www.youtube.com/watch?v=op5FxEs1aR0)
 
 [Bee Gees Stayin Alive (Extended Remaster)](https://www.youtube.com/watch?v=YxvBPH4sArQ)
@@ -228,10 +266,11 @@ ____
 
 [Singing In The Rain - Singing In The Rain (Gene Kelly)](https://www.youtube.com/watch?v=D1ZYhVpdXbQ)
 
-["Good Morning" - Singin' in the Rain (1952)](https://www.youtube.com/watch?v=GB2yiIoEtXw)
+[Singing In The Rain - Good Morning - Singing in the Rain (1952)](https://www.youtube.com/watch?v=GB2yiIoEtXw)
 
 [Fred Astaire And Ginger Rogers Carefree 1938 The Yam Dance](https://www.youtube.com/watch?v=6HkXSRhZKdc)
 
+[James Bond Theme (Bass cover with tabs)](https://www.youtube.com/watch?v=TUodUjmBfAI)
 ____
 
 ## Broadway
