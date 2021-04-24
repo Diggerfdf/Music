@@ -34,6 +34,8 @@
 
 [DVD 25 Anos Aov Vivo](https://www.youtube.com/watch?v=E6iINnuoQHY)
 
+____
+
 ## Danish National Symphony Orchestra - DR Koncerthuset
 
 [The Godfather](https://www.youtube.com/watch?v=X-jdl9hcCeg)
@@ -51,6 +53,8 @@
 [Golden Eye](https://www.youtube.com/watch?v=uJxFTBLqlUE)
 
 [Twin Peaks - Laura Palmer's Theme](https://www.youtube.com/watch?v=jtGL2Tqfdws)
+
+____
 
 ## Curiosity
 
@@ -74,10 +78,31 @@
 
 [Picking Random Girls To Sing The Blues](https://www.youtube.com/watch?v=NwYhLTsbs6Y)
 
+[Trill Compilation : Sopranos](https://www.youtube.com/watch?v=lFs6J44zeBk)
+
 ### Professor of Rock
 
 [How Freddie Mercury of Queen and David Bowie Created the 80s Hit Under Pressure](https://www.youtube.com/watch?v=L7g12E5viZY)
 
+### Rick Beato
+
+[TOP 20 ROCK BASS SOUNDS OF ALL TIME](https://www.youtube.com/watch?v=H0P5isBr7uw)
+
+[TOP 20 ROCK BASS INTROS OF ALL TIME](https://www.youtube.com/watch?v=VqFbwbLQPsc)
+
+### Scott's Bass Lessons
+
+[The 10 Greatest Synth Bass Lines Through History (and how to get the sounds)](https://www.youtube.com/watch?v=pWrPWi1Qtrs)
+
+[10 Classic Basses You Need to Play Before You Die](https://www.youtube.com/watch?v=9EMtT0RRppI)
+
+### Regis Tadeu
+
+[Led Zeppelin - Aposto que Você Não Sabe](https://www.youtube.com/watch?v=Xp5Iqh4cl_4)
+
+[Black Sabbath - Aposto que Você Não Sabe](https://www.youtube.com/watch?v=EhKcw3go9dM)
+
+____
 
 ## Covers
 
@@ -89,14 +114,41 @@
 
 [Iron Cross - Thunderstruch - AC/DC](https://www.youtube.com/watch?v=Sfs7kxE8Guc)
 
+[Brooke C & Moriah Formica - Barracuda - Heart](https://www.youtube.com/watch?v=Z3ecFdRhwPc)
 
-## Tainted Love - Versions
+____
+
+## International
+
+[Pearl Jam - Do the Evolution (Official Video)](https://www.youtube.com/watch?v=aDaOgu2CQtI)
+
+[Beastie Boys - Sabotage](https://www.youtube.com/watch?v=z5rRZdiu1UE)
+
+[Living Colour - Cult Of Personality (Official Video)](https://www.youtube.com/watch?v=7xxgRUyzgs0)
+
+[Crowded House - Don't Dream It's Over (Official Video)](https://www.youtube.com/watch?v=J9gKyRmic20)
+
+[Tears For Fears - Shout (Official Video)](https://www.youtube.com/watch?v=Ye7FKc1JQe4)
+
+[The Animals - House of the Rising Sun (1964)](https://www.youtube.com/watch?v=4-43lLKaqBQ)
+
+[Philip Bailey - Phil Collins - Easy Lover](https://www.youtube.com/watch?v=JkRKT6T0QLg)
+
+[Simple Minds - Don't You (Forget About Me)](https://www.youtube.com/watch?v=CdqoNKCCt7A)
+
+[Yes - Owner Of A Lonely Heart 1983](https://www.youtube.com/watch?v=vpIduDaggVA)
+
+[Yes - Tempus Fugit (Official Video)](https://www.youtube.com/watch?v=vzxZzIiO84Y)
+
+### Tainted Love - Versions
 
 [Gloria Jones - 1964 - OG](https://www.youtube.com/watch?v=OJKe2j9Wjh4)
 
 [Soft Cell](https://www.youtube.com/watch?v=XZVpR3Pk-r8)
 
 [Marilyn Manson](https://www.youtube.com/watch?v=XkKulSH2nNc)
+
+____
 
 ## TV Themes
 
@@ -108,6 +160,7 @@
 
 [Miami Vice](https://www.youtube.com/watch?v=dEjXPY9jOx8)
 
+[Thunderbirds Theme Tune played at the Royal Albert Hall |](https://www.youtube.com/watch?v=MyBgWubXaqU)
 
 ### Chips
 
@@ -121,6 +174,8 @@
 
 [CHiPs Main Title - Bass Cover - Loris Tils Music](https://www.youtube.com/watch?v=uYZIseGykpQ)
 
+____
+
 ## Horror Movies
 
 [Candyman - Helen's Theme](https://www.youtube.com/watch?v=GdPvnKEJYi8)
@@ -128,6 +183,8 @@
 [Halloween Theme](https://www.youtube.com/watch?v=gqVyois9mp4)
 
 [Top 5 Halloween Themes](https://www.youtube.com/watch?v=uk1TvO9CFb8)
+
+____
 
 ## Video Games Soundtracks
 
@@ -147,6 +204,34 @@
 
 [Killer Instinct S1 OST - Warlord - Spinal's Theme](https://www.youtube.com/watch?v=mpqct1zMqTE)
 
+[Bully Walking Theme [Bass Tabs Tutorial]](https://www.youtube.com/watch?v=zreTZNIXJK8)
+
+____
+
+## Movies
+
+### Saturday Night Fever
+
+[Bee Gees - You Should be Dancing)](https://www.youtube.com/watch?v=LUID0jSh2Ic)
+
+[Night Fever - Bee Gees](https://www.youtube.com/watch?v=op5FxEs1aR0)
+
+[Bee Gees Stayin Alive (Extended Remaster)](https://www.youtube.com/watch?v=YxvBPH4sArQ)
+
+### Misc
+
+[Pulp Fiction | 'I Want To Dance' (HD) - Uma Thurman, John Travolta](https://www.youtube.com/watch?v=o5qXCzknxn8)
+
+[The Wizard of Oz - Judy Garland - Ray Bolger Deleted Scarecrow Dance - 1939](https://www.youtube.com/watch?v=NX76RCN_8hk)
+
+[Singing In The Rain - Singing In The Rain (Gene Kelly)](https://www.youtube.com/watch?v=D1ZYhVpdXbQ)
+
+["Good Morning" - Singin' in the Rain (1952)](https://www.youtube.com/watch?v=GB2yiIoEtXw)
+
+[Fred Astaire And Ginger Rogers Carefree 1938 The Yam Dance](https://www.youtube.com/watch?v=6HkXSRhZKdc)
+
+____
+
 ## Broadway
 
 [Cats - Memory (Original Broadway Cast)](https://www.youtube.com/watch?v=LwtoDY140o4)
@@ -157,7 +242,11 @@
 
 [Cats - Memory - Elaine Paige - Royal Albert Hall](https://www.youtube.com/watch?v=tqx3LDawgS8)
 
+____
+
 ## Norse Music
+
+[Heilung | Berserker's Songs](https://www.youtube.com/watch?v=unlNaMViEMo)
 
 ### Danheim
 
@@ -165,10 +254,18 @@
 
 [2 Hours of Dark & Powerful Viking Music (2019)](https://www.youtube.com/watch?v=nO9haYdUjjw)
 
+["VIKINGS" | Most Epic Viking & Nordic Folk Music](https://www.youtube.com/watch?v=V5Watai4qPM)
+
 ### Hallvard
 
 ["VIKINGS" | Most Epic Viking & Nordic Folk Music](https://www.youtube.com/watch?v=V5Watai4qPM)
 
+### Misc
+
+[3 Hours of Dark & Powerful Viking Music | Raw & Primal Norse Mix](https://www.youtube.com/watch?v=JuS6N5cW57o)
+
 ### Dwarven
 
 [Creative Music vol 01 - Dwarves of the First Age](https://www.youtube.com/watch?v=GNwv4cH-i5k)
+
+[Dwarf Music - Halls of the Dark Shadows](https://www.youtube.com/watch?v=5rYkk_q3M6k)
