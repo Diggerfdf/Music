@@ -47,7 +47,9 @@
 
 ____
 
-## Danish National Symphony Orchestra - DR Koncerthuset
+## Classical
+
+### Danish National Symphony Orchestra - DR Koncerthuset
 
 [The Godfather](https://www.youtube.com/watch?v=X-jdl9hcCeg)
 
@@ -64,6 +66,18 @@ ____
 [Golden Eye](https://www.youtube.com/watch?v=uJxFTBLqlUE)
 
 [Twin Peaks - Laura Palmer's Theme](https://www.youtube.com/watch?v=jtGL2Tqfdws)
+
+### Bach
+
+[Toccata and Fugue in D Minor](https://www.youtube.com/watch?v=ho9rZjlsyYY)
+
+### Edward Elgar
+
+[Pomp and Circumstance March No.1](https://www.youtube.com/watch?v=moL4MkJ-aLk)
+
+### Misc
+
+[Relaxing Medieval, Middle Ages Music 10 Hours](https://www.youtube.com/watch?v=5F5dgg1eeGE)
 
 ____
 
@@ -90,6 +104,8 @@ ____
 [Picking Random Girls To Sing The Blues](https://www.youtube.com/watch?v=NwYhLTsbs6Y)
 
 [Trill Compilation : Sopranos](https://www.youtube.com/watch?v=lFs6J44zeBk)
+
+[DEVIL SINGER SHOCKS SIMON COWELL with his ANGELIC VOICE!](https://www.youtube.com/watch?v=yYFCiyYR8Pk)
 
 ### Professor of Rock
 
@@ -144,6 +160,8 @@ ____
 
 [The Animals - House of the Rising Sun (1964)](https://www.youtube.com/watch?v=4-43lLKaqBQ)
 
+[Lipps, Inc. - Funkytown - 1980](https://www.youtube.com/watch?v=PqiZ_gryYUQ)
+
 [Philip Bailey - Phil Collins - Easy Lover](https://www.youtube.com/watch?v=JkRKT6T0QLg)
 
 [Simple Minds - Don't You (Forget About Me)](https://www.youtube.com/watch?v=CdqoNKCCt7A)
@@ -170,9 +188,13 @@ ____
 
 [Freya - The Sword](https://www.youtube.com/watch?v=WuUCMLl5zQ0)
 
+[Sister Rosetta Tharpe For Fenamint Laxatives & Blind Boys of Alabama](https://www.youtube.com/watch?v=I-wJ7YCPrl0)
+
 [Johnny Rivers - Secret Agent Man - 1966](https://www.youtube.com/watch?v=6iaR3WO71j4)
 
 [Elvis Presley - Jailhouse Rock (Music Video)](https://www.youtube.com/watch?v=gj0Rz-uP4Mk)
+
+[Left Side - Like a locomotion](https://www.youtube.com/watch?v=-6X9SLeX48Q)
 
 [The Dead South - In Hell I'll Be In Good Company [Official Music Video]](https://www.youtube.com/watch?v=B9FzVhw8_bY)
 
@@ -271,6 +293,9 @@ ____
 [Fred Astaire And Ginger Rogers Carefree 1938 The Yam Dance](https://www.youtube.com/watch?v=6HkXSRhZKdc)
 
 [James Bond Theme (Bass cover with tabs)](https://www.youtube.com/watch?v=TUodUjmBfAI)
+
+[7 Reasons Cliff Burton F***ing ROCKS (+Bass Lesson Tips)](https://www.youtube.com/watch?v=VHgkaQtTUXo)
+
 ____
 
 ## Broadway
