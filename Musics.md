@@ -22,6 +22,8 @@
 
 [Fabio Jr - Quando Gira o Mundo](https://www.youtube.com/watch?v=MjdGpOiOfz0)
 
+[Seu Jorge - Amiga Da Minha Mulher](https://www.youtube.com/watch?v=ENwJxGEIiDE)
+
 [Bonde do Forró - Garota de Programa](https://www.youtube.com/watch?v=nEIUY-iGQUk)
 
 [Hermes e Renato - Unidos do Caralho a Quatro](https://www.youtube.com/watch?v=1LZt9_ROK9s)
