@@ -239,6 +239,8 @@ ____
 
 [Thunderbirds Theme Tune played at the Royal Albert Hall |](https://www.youtube.com/watch?v=MyBgWubXaqU)
 
+[SilverHawks - Theme Song Opening](https://www.youtube.com/watch?v=SdtcK1Qs2K4)
+
 ### Chips
 
 [CHiPs - Music](https://www.youtube.com/watch?v=g_NoPIMFoYk)
