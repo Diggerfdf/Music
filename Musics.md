@@ -305,6 +305,8 @@ ____
 
 ### Flashdance
 
+[Irene Cara - What a Feeling - 4k](https://www.youtube.com/watch?v=miax0Jpe5mA)
+
 [Irene Cara - What a Feeling (Official Video)](https://www.youtube.com/watch?v=ILWSp0m9G2U)
 
 [Michael Sembello - Maniac (Music Video)](https://www.youtube.com/watch?v=aclyuqS1MmA)
