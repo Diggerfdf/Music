@@ -23,7 +23,10 @@
 [Fabio Jr - Quando Gira o Mundo](https://www.youtube.com/watch?v=MjdGpOiOfz0)
 
 [Bonde do Forró - Garota de Programa](https://www.youtube.com/watch?v=nEIUY-iGQUk)
+
 [Hermes e Renato - Unidos do Caralho a Quatro](https://www.youtube.com/watch?v=1LZt9_ROK9s)
+
+[Leno Brega e Mané da Zona - Mulher Peidona](https://www.youtube.com/watch?v=zQQZy-YEgEo)
 
 ### Só Você - Versions
 
@@ -97,6 +100,8 @@ ____
 
 [Who Sang Black Dog Best?](https://www.youtube.com/watch?v=A-VjMMaM5X8)
 
+[How To Play Achilles Last Stand on Bass](https://www.youtube.com/watch?v=chzBEUAEEwQ)
+
 [Top 80 Songs You Didn't Know Were Covers and Their Originals](https://www.youtube.com/watch?v=O9G6mVo_AbQ)
 
 [Two Dudes Nuke Commuters With The Blues](https://www.youtube.com/watch?v=T-shmnmIC2w)
@@ -106,6 +111,16 @@ ____
 [Trill Compilation : Sopranos](https://www.youtube.com/watch?v=lFs6J44zeBk)
 
 [DEVIL SINGER SHOCKS SIMON COWELL with his ANGELIC VOICE!](https://www.youtube.com/watch?v=yYFCiyYR8Pk)
+
+[Rickenbacker FUNKY/THUMPING Bass demo - Johnny Long](https://www.youtube.com/watch?v=SEvI5oti2ag)
+
+[All About Musical Scales - A COMPLETE GUIDE!!!](https://www.youtube.com/watch?v=Vq2xt2D3e3E)
+
+[Stromae - carmen (Clip Officiel)](https://www.youtube.com/watch?v=UKftOH54iNU)
+
+[Transform Yourself With OBE | Astral Projection | Deep Sleep Hypnosis Binaural Beats](https://www.youtube.com/watch?v=f_hQoIHR7ZU)
+
+[Composer Reacts: Megalovania (Undertale 5th Anniversary Concert)](https://www.youtube.com/watch?v=YisAEFuHLeY)
 
 ### Professor of Rock
 
@@ -197,6 +212,8 @@ ____
 [Left Side - Like a locomotion](https://www.youtube.com/watch?v=-6X9SLeX48Q)
 
 [The Dead South - In Hell I'll Be In Good Company [Official Music Video]](https://www.youtube.com/watch?v=B9FzVhw8_bY)
+
+[Gary Clark Jr Live at The Surf Lodge](https://www.youtube.com/watch?v=v_fYOOEhj-s)
 
 [Sonic Youth - Dirty Boots (Official Video)](https://www.youtube.com/watch?v=7XdYnh729IQ)
 
