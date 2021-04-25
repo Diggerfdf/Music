@@ -317,6 +317,8 @@ ____
 
 [Survivor - Eye Of The Tiger (Official Video)](https://www.youtube.com/watch?v=btPJPFnesV4)
 
+[Irene Cara - Fame - Theme Song](https://www.youtube.com/watch?v=H1gMQ_q3FSM)
+
 [The Wizard of Oz - Judy Garland - Ray Bolger Deleted Scarecrow Dance - 1939](https://www.youtube.com/watch?v=NX76RCN_8hk)
 
 [Singing In The Rain - Singing In The Rain (Gene Kelly)](https://www.youtube.com/watch?v=D1ZYhVpdXbQ)
