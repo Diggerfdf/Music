@@ -124,6 +124,8 @@ ____
 
 [Composer Reacts: Megalovania (Undertale 5th Anniversary Concert)](https://www.youtube.com/watch?v=YisAEFuHLeY)
 
+[7 Reasons Cliff Burton F***ing ROCKS (+Bass Lesson Tips)](https://www.youtube.com/watch?v=VHgkaQtTUXo)
+
 ### Professor of Rock
 
 [How Freddie Mercury of Queen and David Bowie Created the 80s Hit Under Pressure](https://www.youtube.com/watch?v=L7g12E5viZY)
@@ -301,9 +303,19 @@ ____
 
 [Bee Gees Stayin Alive (Extended Remaster)](https://www.youtube.com/watch?v=YxvBPH4sArQ)
 
-### Misc
+### Flashdance
+
+[Irene Cara - What a Feeling (Official Video)](https://www.youtube.com/watch?v=ILWSp0m9G2U)
+
+[Michael Sembello - Maniac (Music Video)](https://www.youtube.com/watch?v=aclyuqS1MmA)
+
+[Love's Theme](https://www.youtube.com/watch?v=onJspmvJr0E)
+
+### Various
 
 [Pulp Fiction | 'I Want To Dance' (HD) - Uma Thurman, John Travolta](https://www.youtube.com/watch?v=o5qXCzknxn8)
+
+[Survivor - Eye Of The Tiger (Official Video)](https://www.youtube.com/watch?v=btPJPFnesV4)
 
 [The Wizard of Oz - Judy Garland - Ray Bolger Deleted Scarecrow Dance - 1939](https://www.youtube.com/watch?v=NX76RCN_8hk)
 
@@ -314,8 +326,6 @@ ____
 [Fred Astaire And Ginger Rogers Carefree 1938 The Yam Dance](https://www.youtube.com/watch?v=6HkXSRhZKdc)
 
 [James Bond Theme (Bass cover with tabs)](https://www.youtube.com/watch?v=TUodUjmBfAI)
-
-[7 Reasons Cliff Burton F***ing ROCKS (+Bass Lesson Tips)](https://www.youtube.com/watch?v=VHgkaQtTUXo)
 
 ____
 
