@@ -90,6 +90,8 @@ ____
 
 [Fretless Funk Rock Bass Grooves - Remco's Groove Lab](https://www.youtube.com/watch?v=L11fcH1J5tw)
 
+[The Freedom of Fretless Bass - Remco's Groove Lab](https://www.youtube.com/watch?v=tSu0yoTOJFU)
+
 [Mongolian Throat Singing With My Daughter - Batzorig Vaanchig](https://www.youtube.com/watch?v=gAua3u3DXfU)
 
 [Mogli e Balu - Necessário, somente o necessário](https://www.youtube.com/watch?v=S4J70C36RGU)
@@ -355,7 +357,9 @@ ____
 
 [2 Hours of Dark & Powerful Viking Music (2019)](https://www.youtube.com/watch?v=nO9haYdUjjw)
 
-["VIKINGS" | Most Epic Viking & Nordic Folk Music](https://www.youtube.com/watch?v=V5Watai4qPM)
+["VIKINGS" | Most Epic Viking & Nordic Folk Music](https://www.youtube.com/watch?v=V5Watai4qPM) - 1st music Berserkir
+
+[Mannavegr (Full Album 2017) Viking Era & Viking War Music](https://www.youtube.com/watch?v=8tilKaOINmE)
 
 ### Hallvard
 
